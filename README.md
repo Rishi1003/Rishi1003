@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Rishi1003
+- 👀 I’m interested in AI/ML
+- 🌱 I’m currently Doing my undergrad in cse
+- 📫 You can reach me via twitter @Rishi_karanam
